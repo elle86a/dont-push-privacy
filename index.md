@@ -53,7 +53,7 @@ If this Privacy Policy is updated, the changes will be reflected in the "Last up
 
 For questions about this Privacy Policy, please contact:
 
-**Email**: [YOUR_EMAIL_ADDRESS]
+**Email**: amine86benmoussa@gmail.com
 
 ---
 
